@@ -1,1 +1,1 @@
-https://asd741.github.io/try_push/.
+https://asd741.github.io/try_push/vmall.html
